@@ -1,5 +1,5 @@
 # 🚀 Siddharth Nirmale  
-### 💻 Full-Stack Developer | AI Builder | Problem Solver  
+### 💻 Full-Stack Developer | Problem Solver  
 
 ---
 
